@@ -8,7 +8,7 @@
 
 ## Let's connect!
 
-- 📫 Feel free to reach me at [elphan@buffalo.edu](mailto:elphan@buffalo.edu).
+- 📫 Feel free to reach me @ [ethanlphan8@gmail.com](mailto:ethanlphan8@gmail.com).
 - 🌐 Visit my personal page @ [ethanlphan.com](https://ethanlphan.com).
-- 💬 Connect with me on @ [LinkedIn](https://www.linkedin.com/in/ethanlphan).
+- 💬 Connect with me @ [LinkedIn](https://www.linkedin.com/in/ethanlphan).
 
